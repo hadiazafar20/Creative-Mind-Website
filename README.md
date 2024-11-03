@@ -1,2 +1,2 @@
 # Creative-Mind-Website
-Assignment # 01
+Hadia Zafar & Kinza Mukhtar's 1st Assignment
